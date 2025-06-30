@@ -28,4 +28,4 @@ At MedSutra, we understand that your health data is incredibly sensitive. 🤫 T
 
 ---
 
-**Ready to revolutionize your health management?** Download MedSutra today and experience the future of personal health assistance! 🌟
+**Ready to revolutionize your health management?** Coming Soon.... 🌟
